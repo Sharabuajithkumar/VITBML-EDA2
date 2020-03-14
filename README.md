@@ -1,1 +1,8 @@
 # VITBML-EDA2
+19pa1a05g9
+
+19pa1a05i8
+
+19pa1a05h3
+
+19pa1a05d7
